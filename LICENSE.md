@@ -1,4 +1,4 @@
-#  
+#  exclusive survive lava for brainrots Script is the best survive lava for brainrots Script, featuring god mode and auto-collect. Safe and powerful for
 
 
 
