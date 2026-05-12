@@ -4,7 +4,7 @@
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://HeraldObey85.github.io/survive-lava-for-b-hy62/ ) |
  |---------------------|----------------------:|
 
 
